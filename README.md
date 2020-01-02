@@ -1,1 +1,7 @@
 Rajoute ta blague...
+Vous connaissez la blague du mec qui a oublié d'augmenter la variable dans sa boucle while ?
+Vous connaissez la blague du mec qui a oublié d'augmenter la variable dans sa boucle while ?
+Vous connaissez la blague du mec qui a oublié d'augmenter la variable dans sa boucle while ?
+Vous connaissez la blague du mec qui a oublié d'augmenter la variable dans sa boucle while ?
+Vous connaissez la blague du mec qui a oublié d'augmenter la variable dans sa boucle while ?
+Vous connaissez la blague du mec qui a oublié d'augmenter la variable dans sa boucle while ?
